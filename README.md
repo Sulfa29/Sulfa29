@@ -1,6 +1,6 @@
 # Halo semua! 
 Perkenalkan nama saya **Sulfa Nurohid**.\
-Saya seorang **Mahasiswa** di *UNiversitas Jenderal Achmad Yani*.\
+Saya seorang **Mahasiswa** di *Universitas Jenderal Achmad Yani*.\
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/sulfa-nurohid/) ku ya.
  
 <p align="left">
